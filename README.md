@@ -1,0 +1,1 @@
+# Diploma-Thesis-PLA-based-Tribogenerators
